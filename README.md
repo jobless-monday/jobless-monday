@@ -1,7 +1,7 @@
 ![Untitled934_20241108233218](https://github.com/user-attachments/assets/a9a013a7-878c-42d2-953c-251fa596396a)
 ![Tumblr_l_443334501070860](https://github.com/user-attachments/assets/7db29e77-52f7-4cff-b14d-50c3106b193d)
 
-‎— 𝗔𝙉𝗬 𝙋𝗥𝙊𝙉𝙊𝗨𝙉𝗦 . 𝗛𝗘𝗜𝗗𝗜/𝙊𝙍𝗜𝙊𝗡
+　‎— 𝗔𝙉𝗬 𝙋𝗥𝙊𝙉𝙊𝗨𝙉𝗦 . 𝗛𝗘𝗜𝗗𝗜/𝙊𝙍𝗜𝙊𝗡
 　　　𝗧𝗔𝙂/𝙀𝗡𝙂 . 𝗚𝗠𝗧 𝟴+ . 𝟭𝟵
 
 　　　 　　[𝗦𝙏𝗥𝘼𝗪𝙋𝗔𝙂𝗘](https://sirmeggle.straw.page) ![Tumblr_l_525929900764941](https://github.com/user-attachments/assets/6984bc23-9731-45a8-baea-b022190f60e4) 

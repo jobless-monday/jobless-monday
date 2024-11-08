@@ -6,6 +6,6 @@
 
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Tiny5&size=28&pause=1000&color=203385&center=true&vCenter=true&width=435&lines=OH%2C+I+MISS+WHEN+WE+FIRST+MET.;HE+DIDN'T+KNOW+ME+YET.)](https://git.io/typing-svg)
 
-　　　 　　𝗠𝗬 𝗦𝗧𝗔𝗥 . [★](https://github.com/A-HUMANS-TOUCH) ! ![Tumblr_l_525918534247556](https://github.com/user-attachments/assets/2e9953a3-152b-4e20-b8f9-f06d1a08fd23)
+　　　 　　𝗠𝙔 [𝗦𝙏𖤐𝗥](https://github.com/A-HUMANS-TOUCH) ! ![Tumblr_l_525918534247556](https://github.com/user-attachments/assets/2e9953a3-152b-4e20-b8f9-f06d1a08fd23)
 
 ![Untitled744_20241030140648](https://github.com/user-attachments/assets/c7d5a8dd-9577-4ca5-a29c-6d3ca9cdee77)

@@ -13,6 +13,5 @@
 
 ![Tumblr_l_443334501070860](https://github.com/user-attachments/assets/b3bb032f-2a5a-465f-9581-63ca920c6b47)
 
-
-![Untitled744_20241030140648](https://github.com/user-attachments/assets/c7d5a8dd-9577-4ca5-a29c-6d3ca9cdee77)
-𝘁𝗵𝗲 𝗴𝗮𝗻𝗴 𝗶𝗴 :///
+![Untitled764_20241118011246](https://github.com/user-attachments/assets/3fc5761a-e216-44d7-a385-8d4721f33f34)
+shout out 2 xavier for thi s imCRYING

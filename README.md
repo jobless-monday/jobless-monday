@@ -13,5 +13,5 @@
 
 ![Tumblr_l_443334501070860](https://github.com/user-attachments/assets/b3bb032f-2a5a-465f-9581-63ca920c6b47)
 
-![Untitled764_20241118011246](https://github.com/user-attachments/assets/3fc5761a-e216-44d7-a385-8d4721f33f34)
-shout out 2 xavier for thi s imCRYING
+![Screenshot_20241102_230534](https://github.com/user-attachments/assets/27dab9d1-688b-4c2f-9d14-b89df09e3db2)
+skibidi,,, 

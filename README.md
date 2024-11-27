@@ -5,7 +5,7 @@ HELLLOOOO i am heidi or orion,, both names are ok to use!!!!!!!
 
 just a reminder i am 20 now uhhh-hhhhhhh 16- dniuid/uf drops this and runs
 
-i am a androgynus gal who has a [lovely wife!!](https://github.com/A-HUMANS-TOUCH) so any prns are alright heh!!!!!!!!
+i am a androgynus gal who has a [lovely wife!!](https://github.com/A-HUMANS-TOUCH) so any prns are alright heh!! my gf is on pt once every blue moon
 
 main interests are roblox (if that wasnt obvious enough) but i like arcane too
 

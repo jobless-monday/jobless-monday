@@ -1,19 +1,21 @@
-![Untitled934_20241108233218](https://github.com/user-attachments/assets/a9a013a7-878c-42d2-953c-251fa596396a)
-![Tumblr_l_443334501070860](https://github.com/user-attachments/assets/7db29e77-52f7-4cff-b14d-50c3106b193d)
+![Clap_by_mors_or_hawal](https://github.com/user-attachments/assets/d2983378-2fd5-4eaf-b102-81bbf91d44cd)
+OKAH im not gonna make this plook pretty this is gonna be placehplder until i get out of exams and fix fhis 🔥
 
-　‎— 𝗔𝙉𝗬 𝙋𝗥𝙊𝙉𝙊𝗨𝙉𝗦 . 𝗛𝗘𝗜𝗗𝗜/𝙊𝙍𝗜𝙊𝗡
-　　　　𝗧𝗔𝙂/𝙀𝗡𝙂 . 𝗚𝗠𝗧 𝟴+ . 20!!!!
+HELLLOOOO i am heidi or orion,, both names are ok to use!!!!!!!
 
-　　　 　　[𝗦𝙏𝗥𝘼𝗪𝙋𝗔𝙂𝗘](https://sirmeiggle.straw.page) ![Tumblr_l_525929900764941](https://github.com/user-attachments/assets/6984bc23-9731-45a8-baea-b022190f60e4) 
-　　　     ‎‎[𝗔𝙏𝗔𝘽𝙊𝗢𝙆](https://distinctfuture.atabook.org/) ![Tumblr_l_525923299910941](https://github.com/user-attachments/assets/fb5ee79b-514c-40b2-8bcd-887fc8c7fe24)
+just a reminder i am 20 now uhhh-hhhhhhh 16- dniuid/uf drops this and runs
 
-16- dniuid/uf im banned from 18+ p ls
+i am a androgynus gal who has a [lovely wife!!](https://github.com/A-HUMANS-TOUCH) so any prns are alright heh!!!!!!!!
 
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Tiny5&size=28&pause=1000&color=FFCC6EFF&center=true&vCenter=true&width=435&lines=OH%2C+I+MISS+WHEN+WE+FIRST+MET.;HE+DIDN'T+KNOW+ME+YET.)](https://git.io/typing-svg)
+main interests are roblox (if that wasnt obvious enough) but i like arcane too
 
-　　　 　　𝗠𝙔 [𝗦𝙏𖤐𝗥](https://github.com/A-HUMANS-TOUCH) ! ![Tumblr_l_525918534247556](https://github.com/user-attachments/assets/2e9953a3-152b-4e20-b8f9-f06d1a08fd23)
+i really do not give a diddlay darn if you come up to me or whisper stuff to me,, crowns are alright (i will thank you back trust)
 
-![Tumblr_l_443334501070860](https://github.com/user-attachments/assets/b3bb032f-2a5a-465f-9581-63ca920c6b47)
+NEVER be dry i WILL CRY!!!and stop drop and roll all over my bedroom floor! 
 
-![Screenshot_20241102_230534](https://github.com/user-attachments/assets/27dab9d1-688b-4c2f-9d14-b89df09e3db2)
-skibidi,,, 
+im a bad conversationalist and bad at starting one but yeah
+
+ok its 1am im not fixing all of this
+
+[𝗦𝙏𝗥𝘼𝗪𝙋𝗔𝙂𝗘](https://sirmeiggle.straw.page) ![Tumblr_l_525929900764941](https://github.com/user-attachments/assets/6984bc23-9731-45a8-baea-b022190f60e4) 
+[𝗔𝙏𝗔𝘽𝙊𝗢𝙆](https://distinctfuture.atabook.org/) ![Tumblr_l_525923299910941](https://github.com/user-attachments/assets/fb5ee79b-514c-40b2-8bcd-887fc8c7fe24)

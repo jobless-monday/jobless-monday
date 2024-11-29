@@ -3,7 +3,7 @@ OKAH im not gonna make this plook pretty this is gonna be placehplder until i ge
 
 HELLLOOOO i am heidi or orion,, both names are ok to use!!!!!!!
 
-just a reminder i am 20 now uhhh-hhhhhhh 16- dniuid/uf drops this and runs
+just a reminder i am 20 now uhhh-hhhhhhh 16- dniuid/uf drops this and runs (in general dont harass me so iwc ummmmmm!
 
 i am a androgynus gal who has a [lovely wife!!](https://github.com/A-HUMANS-TOUCH) so any prns are alright heh!! my gf is on pt once every blue moon
 
@@ -14,6 +14,10 @@ i really do not give a diddlay darn if you come up to me or whisper stuff to me,
 NEVER be dry i WILL CRY!!!and stop drop and roll all over my bedroom floor! 
 
 im a bad conversationalist and bad at starting one but yeah
+
+mainly at roblox area with my friends,, sometimes ill leave for some other friend,,, yeah you can find me in roblox area most of the time
+
+i do art but im not confident enough to show or post them anywhere online,, so eat up oomfs ur all only getting the 5 star meals
 
 ok its 1am im not fixing all of this
 

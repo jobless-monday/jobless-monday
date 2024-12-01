@@ -1,4 +1,4 @@
-![Clap_by_mors_or_hawal](https://github.com/user-attachments/assets/d2983378-2fd5-4eaf-b102-81bbf91d44cd)
+![Untitled946_20241201095040](https://github.com/user-attachments/assets/3c1503b9-9577-47e4-9c2a-b9c89ca71f41)
 OKAH im not gonna make this plook pretty this is gonna be placehplder until i get out of exams and fix fhis 🔥
 
 HELLLOOOO i am heidi or orion,, both names are ok to use!!!!!!!

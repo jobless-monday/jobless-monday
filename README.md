@@ -19,6 +19,8 @@ mainly at roblox area with my friends,, sometimes ill leave for some other frien
 
 i do art but im not confident enough to show or post them anywhere online,, so eat up oomfs ur all only getting the 5 star meals
 
+colorpick or copy my skins and ill FIND YOu. igot colorpicked 4 times help a poor elderly soul
+
 ok its 1am im not fixing all of this
 
 [𝗦𝙏𝗥𝘼𝗪𝙋𝗔𝙂𝗘](https://sirmeiggle.straw.page) ![Tumblr_l_525929900764941](https://github.com/user-attachments/assets/6984bc23-9731-45a8-baea-b022190f60e4) 

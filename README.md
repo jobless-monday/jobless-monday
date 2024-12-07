@@ -1,5 +1,6 @@
-![Untitled946_20241201095040](https://github.com/user-attachments/assets/3c1503b9-9577-47e4-9c2a-b9c89ca71f41)
-OKAH im not gonna make this plook pretty this is gonna be placehplder until i get out of exams and fix fhis 🔥
+![Untitled946_20241201095040](https://github.com/user-attachments/assets/70ce2c0a-d3ff-467a-bfac-39c3cde3ec0a)
+
+out of exams and not fixing fhis 🔥
 
 HELLLOOOO i am heidi or orion,, both names are ok to use!!!!!!!
 
@@ -20,8 +21,6 @@ mainly at roblox area with my friends,, sometimes ill leave for some other frien
 i do art but im not confident enough to show or post them anywhere online,, so eat up oomfs ur all only getting the 5 star meals
 
 colorpick or copy my skins and ill FIND YOu. igot colorpicked 4 times help a poor elderly soul
-
-ok its 1am im not fixing all of this
 
 [𝗦𝙏𝗥𝘼𝗪𝙋𝗔𝙂𝗘](https://sirmeiggle.straw.page) ![Tumblr_l_525929900764941](https://github.com/user-attachments/assets/6984bc23-9731-45a8-baea-b022190f60e4) 
 [𝗔𝙏𝗔𝘽𝙊𝗢𝙆](https://distinctfuture.atabook.org/) ![Tumblr_l_525923299910941](https://github.com/user-attachments/assets/fb5ee79b-514c-40b2-8bcd-887fc8c7fe24)

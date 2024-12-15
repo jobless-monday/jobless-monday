@@ -22,7 +22,7 @@ i do art but im not confident enough to show or post them anywhere online,, so e
 
 colorpick or copy my skins and ill FIND YOu. igot colorpicked 4 times help a poor elderly soul
 
-ALSO i fucking love mafias bruh. you can prolly find me in one too hehh.  SORRY ROBLOC ARE
+ALSO i fucking love mafias bruh. you can prolly find me in one too hehh.  SORRY ROBLOC ARE <<< u can mainly find me playing nocturnal dread mafia!!!! maybe another one if i have enough time
 
 [𝗦𝙏𝗥𝘼𝗪𝙋𝗔𝙂𝗘](https://sirmeiggle.straw.page) ![Tumblr_l_525929900764941](https://github.com/user-attachments/assets/6984bc23-9731-45a8-baea-b022190f60e4) 
 [𝗔𝙏𝗔𝘽𝙊𝗢𝙆](https://distinctfuture.atabook.org/) ![Tumblr_l_525923299910941](https://github.com/user-attachments/assets/fb5ee79b-514c-40b2-8bcd-887fc8c7fe24)

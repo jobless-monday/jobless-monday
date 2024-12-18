@@ -28,5 +28,6 @@ ALSO i fucking love mafias bruh. you can prolly find me in one too hehh.  SORRY 
 [𝗔𝙏𝗔𝘽𝙊𝗢𝙆](https://distinctfuture.atabook.org/) ![Tumblr_l_525923299910941](https://github.com/user-attachments/assets/fb5ee79b-514c-40b2-8bcd-887fc8c7fe24)
 [decorate my tree!!](https://decomytree.com/home?hashedId=qNJamOesn5lf)![Tumblr_l_525879875272784](https://github.com/user-attachments/assets/9af46287-f92d-4a93-a69c-2ab603e81bf2)
 
-the idiots EVERRRR /POS!! 
-raine, sherbert, nathan, rown
+the idiots EVERRRR /POS!! vv
+
+raine (MWAA I LOVE YOA),sherbert, nathan, chion, cherri, bonnie, flint, charlie hehehh i ❤ u oomifes

@@ -30,4 +30,4 @@ ALSO i fucking love mafias bruh. you can prolly find me in one too hehh.  SORRY 
 
 the idiots EVERRRR /POS!! vv
 
-raine (MWAA I LOVE YOA),sherbert, nathan, chion, cherri, bonnie, flint, charlie hehehh i ❤ u oomifes
+raine (MWAA I LOVE YOA),sherbert, nathan, chion, cherri, bonnie, flint, charlie hehehh i ❤ u oomifes (if you're not stated here, you're all stifll dear to me ^_^!!)
